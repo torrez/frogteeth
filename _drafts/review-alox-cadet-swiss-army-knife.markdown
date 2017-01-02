@@ -20,3 +20,14 @@ That was two years ago and I don't think I'm ever going to get that next knife.
 
 The Alox Cadet is # inches long (# centimeters), contains # tools, and, unlike most SAKs, is clad in aluminum.
 
+The # tools are on four metal parts: a # inch (# centimeters) blade; a nail file and nail cleaner; bottle opener, wire stripper, flat-head screwdriver; and a can opener, tiny flat-head screwdriver.
+
+I've used all of these at some point except the nail file--that always seemed odd to me.
+
+The nicest thing I can say about this knife is that I forget I'm carrying it until I need it. It's thin and goes into the same pocket as my Keysmart key-holder. They're roughly the same size and both seem to be the same hardness so that neither one scratches the other.
+
+The second thing I'd say is that the knife is, for my needs, exactly the size I need.
+
+When I started carrying the CRKT it always seemed to be in the way when I sat down. I'd take it out and set it down on my desk, occasionally forgetting it when I left work. A few times I'd need a bottle opener or a screwdriver and wish it had one.
+
+When I started carrying the Cadet it covered all my needs. And given my very small cutting needs the tiny blade was fine. I do miss the CRKTs serrated edge, which made quick work of a large bush's trunk once, but otherwise it's the perfect size for me.
