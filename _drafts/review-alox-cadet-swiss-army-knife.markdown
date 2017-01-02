@@ -1,5 +1,5 @@
 ---
-title: 'Review: Alox Cadet Swiss Army Knife'
+title: Alox Cadet Swiss Army Knife Review
 date: 2017-01-01 16:11:00 -08:00
 categories:
 - review
@@ -10,17 +10,17 @@ tags:
 - knife
 ---
 
-I started carrying an Alox Cadet by accident. I originally thought I wanted a single-blade folding knife so I bought a CRKT and carried it around a bit. Around the same time I decided I wanted to have something with some options in my backpack for times when I'd be traveling and need a different tool.
+I started carrying an [Alox Cadet](http://amzn.to/2iyeyrS) by accident. I originally thought I wanted a single-blade folding knife so I bought a CRKT and carried it around a bit. Around the same time I decided I wanted to have something with some options in my backpack for times when I'd be traveling and needed a different tool.
 
-So I bought what I thought was the simplest Swiss Army Knife (SAK) that seemed more durable than the typical cellulose handled knives and slipped it into a pocket in my bag.
+I bought what I thought was the simplest Swiss Army Knife (SAK) that seemed more durable than the typical cellulose handled knives and slipped it into a pocket in my bag for later.
 
-When I realized I needed more options in my EDC I rotated out the CRKT with the Cadet, and planned to eventually get something with even more tools soon after.
+At some point I decided I probably needed a knife with more tools in my EDC so I swapped the SAK in my bag for the CRKT, thinking I'd get one with more tools at some point.
 
 That was two years ago and I don't think I'm ever going to get that next knife. I love my Alox Cadet.
 
-The Alox Cadet is # inches long (# centimeters), contains # tools on four folding parts, and unlike most SAKs, is clad in an aluminum handle.
+The Cadet is 5.75 inches long (~14.6 centimeters), contains 8 tools on four folding parts, and unlike most SAKs, it's clad in an aluminum handle.
 
-The # tools are on four metal parts: a # inch (# centimeters) blade; a nail file and nail cleaner; bottle opener, wire stripper, flat-head screwdriver; and a can opener, tiny flat-head screwdriver.
+The 8 tools are on four metal parts: a # inch (# centimeters) blade; a nail file and nail cleaner; bottle opener, wire stripper, flat-head screwdriver; and a can opener, tiny flat-head screwdriver.
 
 I've used all of these at some point except the nail file--that always seemed odd to me.
 
