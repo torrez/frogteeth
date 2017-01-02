@@ -10,15 +10,15 @@ tags:
 - knife
 ---
 
-I started carrying an Alox Cadet by accident. I originally thought I wanted a single-blade folding knife so I bought a CRKT and carried it around a bit, but I realized I wanted to have something with some options in my backpack. 
+I started carrying an Alox Cadet by accident. I originally thought I wanted a single-blade folding knife so I bought a CRKT and carried it around a bit. Around the same time I decided I wanted to have something with some options in my backpack for times when I'd be traveling and need a different tool.
 
 So I bought what I thought was the simplest Swiss Army Knife (SAK) that seemed more durable than the typical cellulose handled knives and slipped it into a pocket in my bag.
 
 When I realized I needed more options in my EDC I rotated out the CRKT with the Cadet, and planned to eventually get something with even more tools soon after.
 
-That was two years ago and I don't think I'm ever going to get that next knife.
+That was two years ago and I don't think I'm ever going to get that next knife. I love my Alox Cadet.
 
-The Alox Cadet is # inches long (# centimeters), contains # tools, and, unlike most SAKs, is clad in aluminum.
+The Alox Cadet is # inches long (# centimeters), contains # tools on four folding parts, and unlike most SAKs, is clad in an aluminum handle.
 
 The # tools are on four metal parts: a # inch (# centimeters) blade; a nail file and nail cleaner; bottle opener, wire stripper, flat-head screwdriver; and a can opener, tiny flat-head screwdriver.
 
